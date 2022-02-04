@@ -1,0 +1,2 @@
+# tahap-2-sesion-1
+ABA, CFR, ATI, LAPBUL, SLIK, MOBILE APP
